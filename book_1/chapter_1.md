@@ -153,7 +153,7 @@ Professor McGonagall pulled out a tissue and dabbed at her eyes beneath her spec
 
 "Bet," said Dumbledore, looking super serious through his specs. "It would be enough to go to anyone's head. An influencer before he can walk and talk! Famous for something he won't even remember! Can't you see how much better off he'll be, growing up away from all that until he's ready to take it?"
 
-Professor McGonagall made fish faces like she was going to say something but thought better. She composed herself then said, "Bet, ikr. But how is the boy getting here, Dumbledore?" She eyed his cloak suddenly as though he thought he was transporting the babin.
+Professor McGonagall made fish faces like she was going to say something but thought better. She composed herself then said, "Bet, ikr. But how is the boy getting here, Dumbledore?" She eyed his cloak suddenly as though she thought he was transporting the babin.
 
 "Hagrid's bringing him."
 
@@ -163,7 +163,7 @@ Professor McGonagall made fish faces like she was going to say something but tho
 
 "His heart is G.O.A.T.," said Professor McGonagall grudgingly, "but you can't pretend he's not an airhead. He does tend to - what was that?"
 
-A _vroom vroom_ sound broke the silence around them. It grew steadily louder as they looked up and down the street for some sign of a headlight; it swelled to a roar as they both looked up at the sky - a huge motorcycle fell out of the air and landed on the road in front of them.
+A _vroom vroom_ sound broke the silence around them. It grew steadily louder as they looked up and down the street for some sign of a headlight; it swelled to a roar as they both looked up at the sky - a huge-ass motorcycle fell out of the air and landed on the road in front of them.
 
 If the motorcycle was huge, it was nothing compared to the beast of a man straddling it. He was almost twice as tall as a normal man and had some major BDE (big dick energy). His fluffy factor was a "Oh hell no" and so wild - long tangles of bushy black hair and beard hid most of his face, he had hands the size of hubcaps, and his feet in their leather boots were like baby dolphins. In his vast, muscular arms he was holding a bundle of blankets.
 
